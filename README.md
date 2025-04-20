@@ -36,5 +36,6 @@ Currently, I do not have any blog posts, but I'm planning to share my journey in
 
 ## Connect with Me
 
-https://www.linkedin.com/in/lahir-budiga-798bb9296 
+https://www.linkedin.com/in/lahir-budiga-798bb9296
+
 https://www.instagram.com/lahir_goud?igsh=cjNnaWpnbDYwbmRu
